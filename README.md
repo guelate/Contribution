@@ -1,6 +1,6 @@
 #  JOURNAL DE CONTRIBUTION 📖
 
-**Guelate KILLIAN Seyo**
+**Guelate Killian Seyo**
 
 >Seul : pas de groupe.
 <br>
